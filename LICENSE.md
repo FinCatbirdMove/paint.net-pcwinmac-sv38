@@ -1,4 +1,4 @@
-# 
+# Avanzado Paint.NET preajustes para Mac OS | Automático Paint.NET preajustes para PC Windows. Con mezcla húmeda y lápiz graso — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
